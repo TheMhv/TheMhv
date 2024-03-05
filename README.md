@@ -8,5 +8,5 @@
 Reach me on:
 - LinkedIn: [luizmedinaa](https://www.linkedin.com/in/luizmedinaa/)
 - Twitter: [TheMhv](https://twitter.com/TheMhv)
-- Discord: [themhv](https://discord.com/users/themhv)
+- Discord: [themhv](https://discordapp.com/users/230145118814863362)
 - Email: [mhv.geral@gmail.com](mailto:mhv.geral@gmail.com)
