@@ -11,7 +11,7 @@ Hello, my name is Luiz Felipe and I am a Brazilian developer passionate about ac
 - Social Medias:
   - [GitHub](https://github.com/TheMhv)
   - [LinkedIn](https://www.linkedin.com/in/luizmedinaa/)
-  - [Discord](https://discord.com/users/themhv)
+  - [Discord](https://discordapp.com/users/230145118814863362)
 
 ## Professional Objective
 
