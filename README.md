@@ -5,6 +5,8 @@
   the future of technology. 👨‍💻
 </h3>
 
+Find out more in [my resume](https://themhv.github.io/my-resume/)
+
 Reach me on:
 - LinkedIn: [luizmedinaa](https://www.linkedin.com/in/luizmedinaa/)
 - Twitter: [TheMhv](https://twitter.com/TheMhv)
